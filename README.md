@@ -2,5 +2,5 @@
 
 
 
-- 🔭 I’m currently studying System Engineering at Ort University ⚡
+- 🔭 I’m currently studying System Engineering at Ort University  ⚡
 
